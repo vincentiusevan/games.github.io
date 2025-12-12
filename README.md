@@ -1,2 +1,2 @@
 # games2
-seru
+mantap
